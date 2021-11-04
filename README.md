@@ -1,4 +1,5 @@
 # Range
 Range
 
-可以下载该连接获取apk版~
+可以通过该连接下载apk版~
+https://share.weiyun.com/zrw1bPUb
